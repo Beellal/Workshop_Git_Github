@@ -1,0 +1,1 @@
+<<la vie est belle, mais elle est egalement fragile. Fates en bon usage.>>
